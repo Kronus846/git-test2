@@ -1,0 +1,1 @@
+Todas estas questões, devidamente ponderadas, levantam dúvidas sobre se o entendimento das metas propostas possibilita uma melhor visão global dos índices pretendidos.
